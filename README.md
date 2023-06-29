@@ -1,5 +1,5 @@
 - 📫 How to reach me ...
-- 👋 Hi, I’m @bitobox but you can call me Bito
+- 👋 Hi, I’m @bitobox but you can call me Bitobox
 
 
 
